@@ -3,4 +3,4 @@
 This timeline was made in the UC- Coding, course Senac University. 
 
 
-[Click here](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.collidu.com%2Fpresentation-history-of-cloud-computing&psig=AOvVaw2HYL1SaxtFuywC-FF0Hef4&ust=1757160771183000&source=images&cd=vfe&opi=89978449&ved=0CBUQjRxqFwoTCJCKnZfMwY8DFQAAAAAdAAAAABAE)
+[Click here](https://www.collidu.com/media/catalog/product/img/2/9/2928c1bcc0bbbffa649acc5b59ebf62a97d069cf3826ed8a0ad5b09a8c4be62c/history-of-cloud-computing-slide1.png)
